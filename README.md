@@ -1,4 +1,4 @@
-### Olá!!! I'm Davi👋
+### Hello!!! I'm Davi👋
 
 - 🌱 I’m currently studying systems development 🖥️
 
